@@ -1,0 +1,1 @@
+first we've to pour watter in a vessel . Then we have to add the maggie noodles when water is warm. After that we've to add maggie masala. Then we should add vegetables in it and then remove the maggie in a bowl.
